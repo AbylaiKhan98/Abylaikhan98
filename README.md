@@ -1,7 +1,6 @@
 ### Всем привет(Hi everyone)👋 лучший из лучших на связи, btw, лучше чем сайт https://mqr.kz/ до сих пор ничего не придумали
 
 
-Here are some ideas to get you started:
 
 - 🔭 I’m currently working on ... 1 billion project
 - 🌱 I’m currently learning ... project management in business
