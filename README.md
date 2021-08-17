@@ -1,4 +1,4 @@
-<img src="https://thumbs.gfycat.com/FeistyJampackedBuffalo-size_restricted.gif">
+<img src="https://thumbs.gfycat.com/FeistyJampackedBuffalo-size_restricted.gif">   <img src="https://wallegend.net/gif/1521.gif">
 ### Всем привет(Hi everyone)👋 лучший из лучших на связи, btw, лучше чем сайт https://mqr.kz/ до сих пор ничего не придумали
 
 
