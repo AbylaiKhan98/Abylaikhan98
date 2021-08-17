@@ -1,4 +1,4 @@
-<img src="https://c.tenor.com/DbRUHnh1JfsAAAAd/chika-chika-dance.gif">
+<img src="https://thumbs.gfycat.com/FeistyJampackedBuffalo-size_restricted.gif">
 ### Всем привет(Hi everyone)👋 лучший из лучших на связи, btw, лучше чем сайт https://mqr.kz/ до сих пор ничего не придумали
 
 
